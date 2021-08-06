@@ -1,0 +1,2 @@
+# qazaqboy
+pizdets nahui blyad'
